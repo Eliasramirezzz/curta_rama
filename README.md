@@ -18,10 +18,6 @@ Solo cuando veo las fotos
 
 Y los vídeos que tengo de ti
 
-Salí con otra para olvidarte
-
-Y tenía el perfume que te gusta a ti
-
 Prendo para irme a dormir
 
 Porque duermo mejor si sueño que estás aquí
@@ -36,7 +32,7 @@ Qué mucho me ha costa’o
 
 Quizás te hice un favor cuando me fui de tu lado
 
-Borracho, viendo tus fotos
+Ebrio, viendo tus fotos
 
 Me duele ver que tú sí has mejorado
 
@@ -58,7 +54,7 @@ Eso de que me vieron feliz, no, no es cierto
 
 Ey, hace tiempo no pensaba en ti
 
-Borracho, a tu Insta, me metí
+Ebrio, a tu Insta, me metí
 
 Baby, ya yo sé, que a ti te va bien
 
@@ -99,4 +95,3 @@ Eso de que me vieron feliz no es cierto, ey
 Y esto es Grupo Frontera
 
 Y el compa Bad Bunny</h4>
-
