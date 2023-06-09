@@ -18,8 +18,6 @@ Solo cuando veo las fotos
 
 Y los vídeos que tengo de ti
 
-Prendo para irme a dormir
-
 Porque duermo mejor si sueño que estás aquí
 
 Si supieras que te escribí
@@ -54,7 +52,7 @@ Eso de que me vieron feliz, no, no es cierto
 
 Ey, hace tiempo no pensaba en ti
 
-Ebrio, a tu Insta, me metí
+Ebrio, a tu Insta, entre
 
 Baby, ya yo sé, que a ti te va bien
 
